@@ -1,0 +1,2 @@
+# premium-leather-armor-001-leather-armor-pattern-designer
+Tired of wasting expensive leather on trial-and-error pattern tests? The Leather Armor Pattern Designer brings precision and organization to your workshop — no more guesswork, just clean, scalable designs.  This Notion template solves the chaos of scattered sketches and messy notes by giving you a structured system to draft, iterate, and scale leat
